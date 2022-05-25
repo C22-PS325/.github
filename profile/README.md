@@ -1,5 +1,6 @@
 ## Hi there 👋
-[kisspng-anti-psychiatry-psychiatrist-psychology-mental-dis-psychiatric-5b13a61b975ff0 96274852152801436362](https://user-images.githubusercontent.com/82530793/170235087-7cad3ae5-32bc-44a3-b69c-ef4ae76eb66a.jpg)
+![kisspng-anti-psychiatry-psychiatrist-psychology-mental-dis-psychiatric-5b13a61b975ff0 96274852152801436362](https://user-images.githubusercontent.com/82530793/170235487-07b1ae0c-3b9d-455c-beff-c3dd3949f42d.jpg)
+
 <!--
 
 **Here are some ideas to get you started:**
